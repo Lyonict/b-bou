@@ -18,3 +18,6 @@ Immense et majestueux, c'est un arbre que nous aimons à admirer déjà en temps
 Sur cette image, on peut voir un arbre seul sur le bout d'un ile qui est courbé. Il démontre la résistance et la force de la nature à travers cet arbre qui a du se courber face au vent mais qui se tient toujours debout malgré les années. On peut aussi remarquer qu'il a toujours son feuillage jaune mis en valeur par la lueur du soleil alors que les arbres du fond n'ont plus rien. Il fait penser à une sorte de gardien de l'ile, la protégeant du vent avec son corps afin d'assurer sa sureté.
 
 # Arbre_5
+
+L'arbre de cette photo est très imposant montrant sa grandeur et sa longévité dans le temps par sa taille et sa circonférence, on peut voir une personne au pied de l'arbre comme échelle.
+Contrairement aux autres arbres, il est exposé complètement au soleil lui donnant un effet plus clair et chaleureux de part la couleur de son feuillage. Il fait penser à un doyen entourer par les membres de son villages au milieu de la jungle urbaines.
